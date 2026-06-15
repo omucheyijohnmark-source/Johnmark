@@ -39,14 +39,6 @@ Designed posters, flyers, and social media content during training and internshi
 
 ---
 
-## 📊 GitHub Metrics
-<p align="left">
-  <img src="https://github-readme-stats.vercel.app/api?username=Johnmark&show_icons=true&theme=radical" height="150" />
-  <img src="https://github-readme-streak-stats.herokuapp.com/?user=Johnmark&theme=radical" height="150" />
-</p>
----
-
-
 ## 🌐 Connect with Me
 Let's connect and collaborate on exciting projects!
 
