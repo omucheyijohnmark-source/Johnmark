@@ -26,8 +26,8 @@ Here are the tools and technologies I use to bring ideas to life:
 ## 📈 Featured Projects
 
 ### 📂 Digital PR & Communication Reports
-A collection of internship reports, press summaries, and communication materials developed during my attachment.
-* **My Role:**     Content Creator / Communications Intern/ Photographer
+A collection of internship reports, press summaries,Events coverage and communication materials developed during my attachment.
+* **My Role:**     Content Creator / Communications and PR Attachee/ Photographer
 * **Key Outcome:**     Improved structured reporting and internal communication documentation/ covered events by taking photographs
 * **Links:** 
 
