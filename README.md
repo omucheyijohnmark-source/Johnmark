@@ -1,7 +1,7 @@
 # Hi there, I'm Johnmark omucheyi! 👋
 
 ### 🚀 About Me
-I am a passionate Communications & Public Relations Student/Attachee dedicated to creating impactful digital experiences and managing strategic communications/ Digital Marketer ** dedicated to creating impactful digital experiences and managing strategic communications. 
+I am a passionate Communications & Public Relations Student/Attachee dedicated to creating impactful digital experiences and managing strategic communications/ Digital Marketer,dedicated to creating impactful digital experiences and managing strategic communications. 
 
 - 📍 Based in:**Nyandarua county**
 - 💼 Currently working as:     **Attachee (Communications / Public Relations)**
