@@ -34,7 +34,7 @@ https://photos.app.goo.gl/q3Veei8qW158aExG8
 
 ### 📂 Canva Design & Visual Communication Projects
 Designed posters, flyers, and social media content during training and internship work.
-* **Tools Used:**     Canva, Adobe InDesign
+* **Tools Used:**     Canva, Adobe InDesign,Capcu.
 * **Key Outcome:**     Improved visual storytelling and branding consistency
 * **Links:** https://youtube.com/shorts/GpSUr2uyEpE?si=abgLQNoNyeDl5SA2
 https://youtube.com/shorts/Ojh4Bvi3hlU?feature=shared
