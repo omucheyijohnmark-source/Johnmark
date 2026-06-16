@@ -3,7 +3,7 @@
 ### 🚀 About Me
 I am a passionate Communications & Public Relations Student/Attachee dedicated to creating impactful digital experiences and managing strategic communications/ Digital Marketer,dedicated to creating impactful digital experiences and managing strategic communications. 
 
-- 📍 Based in:**Nyandarua county**
+- 📍 Based in:**Nairobi county**
 - 💼 Currently working as:     **Attachee (Communications / Public Relations)**
 - 🌱 I’m currently learning:     **Canva design, Adobe InDesign, and Digital PR strategies**
 - 💬 Ask me about:     **Public Relations, Internal Communication, Canva design, and report writing**
