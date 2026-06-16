@@ -36,8 +36,10 @@ https://photos.app.goo.gl/q3Veei8qW158aExG8
 Designed posters, flyers, and social media content during training and internship work.
 * **Tools Used:**     Canva, Adobe InDesign
 * **Key Outcome:**     Improved visual storytelling and branding consistency
-* **Links:** 
-
+* **Links:** https://youtube.com/shorts/GpSUr2uyEpE?si=abgLQNoNyeDl5SA2
+https://youtube.com/shorts/Ojh4Bvi3hlU?feature=shared
+https://youtu.be/vhz9SS6-ch4?feature=shared
+https://youtube.com/shorts/p6GaWuemSto?si=V-hxuMQqM6ykRlCf
 ---
 
 ## 🌐 Connect with Me
