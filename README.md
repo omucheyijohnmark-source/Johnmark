@@ -5,7 +5,7 @@ I am a passionate Communications & Public Relations Student/Attachee dedicated t
 
 - 📍 Based in:**Nairobi county**
 - 💼 Currently working as:     **Attachee (Communications / Public Relations)**
-- 🌱 I’m currently learning:     **Canva design, Adobe InDesign, and Digital PR strategies**
+- 🌱 I’m currently learning:     **Canva design, Adobe InDesign, Photography,Digital Marketing and Digital PR strategies**
 - 💬 Ask me about:     **Public Relations, Internal Communication, Canva design, and report writing**
 - ✉️ How to reach me: **omucheyijohnmark@gmail.com**
 
