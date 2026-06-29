@@ -31,6 +31,7 @@ A collection of internship reports, press summaries,Events coverage and communic
 * **Key Outcome:**     Improved structured reporting and internal communication documentation/ covering events by taking photographs
 * **Links:** https://photos.app.goo.gl/CxNV3F3HAEonuWuZA
 https://photos.app.goo.gl/q3Veei8qW158aExG8
+https://drive.google.com/drive/folders/1qs0aAuFGMG6yX2tJz3SgwWKSRtxuoGXZ
 
 ### 📂 Canva Design & Visual Communication Projects
 Designed posters, flyers, and social media content during training and internship work.
