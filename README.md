@@ -30,7 +30,7 @@ A collection of internship reports, press summaries,Events coverage and communic
 * **My Role:**     Content Creator / Communications and PR Attachee/ Photographer
 * **Key Outcome:**     Improved structured reporting and internal communication documentation/ covering events by taking photographs
 * **Links:** https://photos.app.goo.gl/CxNV3F3HAEonuWuZA
-https://photos.app.goo.gl/q3Veei8qW158aExG8
+https://photos.app.goo.gl/2VXE8nNheZNCLoVz6
 https://photos.app.goo.gl/k56LUb3USBdRwQ7P9
 
 ### 📂 Canva Design & Visual Communication Projects
