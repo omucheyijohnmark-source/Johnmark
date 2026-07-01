@@ -42,6 +42,8 @@ Designed posters, flyers, and social media content during training and internshi
 https://youtube.com/shorts/Ojh4Bvi3hlU?feature=shared
 https://youtu.be/vhz9SS6-ch4?feature=shared
 https://youtube.com/shorts/p6GaWuemSto?si=V-hxuMQqM6ykRlCf
+
+https://drive.google.com/drive/folders/1IA1qblfC0GSMMzyW9U0oJmoAtqU_u52h
 ---
 
 ## 🌐 Connect with Me
