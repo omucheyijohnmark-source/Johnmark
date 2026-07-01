@@ -33,6 +33,7 @@ A collection of internship reports, press summaries,Events coverage and communic
 https://photos.app.goo.gl/2VXE8nNheZNCLoVz6
 https://photos.app.goo.gl/k56LUb3USBdRwQ7P7
 https://photos.app.goo.gl/w2wZg4cbzCX6rH3R9
+https://photos.app.goo.gl/u9n4zcM9Zdy5trYs9
 
 ### 📂 Canva Design & Visual Communication Projects
 Designed posters, flyers, and social media content during training and internship work.
