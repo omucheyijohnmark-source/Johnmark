@@ -16,7 +16,7 @@ Here are the tools and technologies I use to bring ideas to life:
 
 | Category | Tools / Technologies |
 | :--- | :--- |
-| **Core Skills** | Public Relations, Strategic Copywriting, Campaign Management |
+| **Core Skills** | Public Relations &Corporate Communications, Strategic Copywriting, Campaign Management,Report Writing & Documentation, Media Relations|
 | **Digital & Analytics** | SEO optimization, Google Analytics, Social Media Metrics |
 | **Platforms & Tools** | GitHub, WordPress, Canva, Adobe InDesign,Microsoft Suite,|
 | **Development (Basics)** | HTML, CSS, Markdown |
