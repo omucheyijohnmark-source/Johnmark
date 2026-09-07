@@ -4,7 +4,7 @@
 I am a passionate Communications & Public Relations professional with a strong interest in digital communication, strategic PR, and digital marketing. I have completed my undergraduate studies and practical attachment experience, and I am currently awaiting graduation. I am dedicated to creating impactful digital experiences and managing strategic communications.
 
 - 📍 Based in:**Nairobi county**
-- 💼 Currently status:     Awaiting graduation
+- 💼 Currently status:     Awaiting graduation(dec 2026)
 - 🌱 I’m currently learning:     **Canva design, Adobe InDesign, Photography,Digital Marketing and Digital PR strategies**
 - 💬 Ask me about:     **Public Relations, Internal Communication, Canva design, and report writing**
 - ✉️ How to reach me: **omucheyijohnmark@gmail.com**
@@ -26,7 +26,7 @@ Here are the tools and technologies I use to bring ideas to life:
 ## 📈 Featured Projects
 
 ### 📂 Digital PR & Communication Reports
-A collection of internship reports, press summaries,Events coverage and communication materials developed during my attachment.
+A collection of attachment reports, press summaries,Events coverage and communication materials developed during my attachment.
 * **My Role:**     Content Creator / Communications and PR Attachee/ Photographer
 * **Key Outcome:**     Improved structured reporting and internal communication documentation/ covering events by taking photographs
 * **Links:** https://photos.app.goo.gl/CxNV3F3HAEonuWuZA
